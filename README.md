@@ -1,2 +1,0 @@
-# Freelances
-My professional tasks
